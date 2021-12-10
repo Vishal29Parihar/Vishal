@@ -1,2 +1,2 @@
-# Vishal
-Hi I am Vishal From Electronics and communication department . I love to do code
+# Hi 👋, I'm Vishal
+I'm a Electronics and Communications Engineering student 👨🏻‍💻 from Delhi, India
